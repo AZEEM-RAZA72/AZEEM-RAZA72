@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AZEEM-RAZA72
-- 👀 I’m interested in ...Coding,Cricket,Travelling
+- 👀 I’m interested in ...Coding,Cricket,Soccer,Travelling
 - 🌱 I’m currently learning ...Web Develpment
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...(+919198557867)(8299548624aj@gmail.com)
