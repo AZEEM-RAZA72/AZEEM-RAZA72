@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AZEEM-RAZA72
+- 👋 Hi, I’m @AZEEM-RAZA
 - 👀 I’m interested in ...Coding,Cricket,Soccer,Travelling
 - 🌱 I’m currently learning ...Web Develpment
 - 💞️ I’m looking to collaborate on ...
